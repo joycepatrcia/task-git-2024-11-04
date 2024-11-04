@@ -1,1 +1,1 @@
-joyce patricia life is still going on
+joyce patricia - everybody has each own tempo
